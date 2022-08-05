@@ -1,5 +1,9 @@
 # Evaluación
 
+
+Los gatos se comunican a través de vocalizaciones y entre ellas la más popular es el maullido. También, cabe mencionar que, junto con el perro, son los animales más populares para escoger como mascota, debido a su adaptabilidad y características. 
+
+
 ![Los gatitos son muy lindos](https://cf.ltkcdn.net/gatos/images/std/236641-800x515r1-etapas-desarrollo-gatitos.jpg)
 
 
